@@ -1,1 +1,0 @@
-Üniversite Öğrenci Otomasyonu 
